@@ -11,5 +11,5 @@
   <img src="https://github.com/user-attachments/assets/9b68cb68-b89d-4838-be0f-e955dedb7599"/>
   <br>
   <br>
-  pls recommend me an alternative to rentry (apparently the owner is zionist...yikes! :( ) thanks!
+  pls recommend me an alternative to rentry thanks!
 </p>
